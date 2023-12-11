@@ -1,0 +1,1 @@
+This is licenced MERN Website. Please Do not Copy. If anybody is found with copy I will take legal action on it.
